@@ -14,6 +14,5 @@ Meu nome é Kaique Salazar
 
 
 
-![2f76b6a123c86007ce077676c2d0bdb2aa7bb558r1-736-1308v2_uhq](https://github.com/user-attachments/assets/1e9097bd-5f88-4f47-871b-6d7c9d5a7062)
-
+![images](https://github.com/user-attachments/assets/724b85e4-1643-4892-8516-fedf7a22647f)
 
